@@ -1,1 +1,0 @@
-# pemilihandkp_pamuka_almultazam1
